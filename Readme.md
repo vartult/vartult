@@ -1,1 +1,1 @@
-### Hi Fokes 👋
+### Hi Folks 👋
